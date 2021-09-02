@@ -1,4 +1,4 @@
-### Hi there 👋
+I'm an artist that is looking to bring her creativity and positivity to the software industry. I love working with teams and being able to create a work of art that bloomed from multiple different perspectives and strengths coming together!
 
 <!--
 **MariaOrtiz1/MariaOrtiz1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
